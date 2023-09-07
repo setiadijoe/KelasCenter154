@@ -2,7 +2,7 @@
 __1 Yoh 5:13__ menjelaskan bahwa Alkitab ditulis untuk mengetahui kehendak Allah bagi mnausia, yaitu hidup kekal
 
 ## Garis Besar Materi
-1. [Alkitab adalah buku perjanjian](##-1-Alkitab-Buku-Perjanjian)
+1. [Alkitab adalah buku perjanjian](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#-1-aliktab-buku-perjanjian)
 2. Alkitab adalah tulisan Allah
 3. Struktur di dalam Alkitab
 4. Alkitab mencatat sejarah dan peperangan
@@ -14,8 +14,8 @@ __1 Yoh 5:13__ menjelaskan bahwa Alkitab ditulis untuk mengetahui kehendak Allah
 ## 1. Alkitab Buku Perjanjian
 Allah membuat perjanjian dengan bangsa pilihan (__Maz 89:4__)
 Perjanjian terdiri atas:
-- [Perjanjian Lama](###-perjanjian-lama) 39 buku
-- [Perjanjian Baru](###-perjanjian-baru) 27 buku
+- [Perjanjian Lama](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#perjanjian-lama) 39 buku
+- [Perjanjian Baru](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#perjanjian-baru) 27 buku
 
 ### Perjanjian Lama
 Perjanjian Lama adalah antara Allah dengan bangsa Israel jasmani dan isinya ada di __Kel 19:5-6__, isinya bangsa Israel akan menjadi bangsa pilihan Allah dan bangsa Israel harus taat. Tetapi bangsa Israel melanggar isi perjanjian sehingga mendatangkan kutukan seperti tertulis dalam __Ul 28__, pada ayat pertama berisikan tentang berkat Allah kepada bangsa Israel sedangkan ayat kelima belas berisi kutukan.
