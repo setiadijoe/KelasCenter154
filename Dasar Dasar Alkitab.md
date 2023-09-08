@@ -3,7 +3,7 @@ __1 Yoh 5:13__ menjelaskan bahwa Alkitab ditulis untuk mengetahui kehendak Allah
 
 ## Garis Besar Materi
 1. [Alkitab adalah buku perjanjian](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#-1-aliktab-buku-perjanjian)
-2. Alkitab adalah tulisan Allah
+2. [Alkitab adalah tulisan Allah](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#-2-alkitab-adalah-tulisan-allah)
 3. Struktur di dalam Alkitab
 4. Alkitab mencatat sejarah dan peperangan
 5. Pentingnya nubuatan dan kegenapan
@@ -49,7 +49,22 @@ Dalam perjanjian ini, jika taat, akan menerima keselamatan dan jika tidak taat a
 ## 2. Alkitab Adalah Tulisan Allah
 1. Alkitab ditulis melalui para nabi-Nya dan Allah memberikan ilham dalam pimpinan Roh Kudus. 2 Tim 3:16
 2. Terdapat ajaran dari Roh Kudus dan ajaran Manusia
+   - Ajaran Manusia
    a. Why 5:1-3 terdapat kejadian kitab yang termaterai
    b. Yes 29:9-13 nubuatan tentang kitab yang termaterai dan bangsa yang buta
    c. Alkitab tak boleh ditafsirkan secara menurut pemikiran sendiri tetapi harus berdasarkan Roh Kudus
    d. Mrk 7:6-9 Yesus Kristus menyebut orang Ibrani hanya menghapal ajaran manusia
+   - Ajaran Roh Kudus
+   a. Gal 1:11-12 Paulus menjelaskan bahwa yang diajarkan adalah ajaran dari Yesus sendiri
+   b. 1 Kor 2:10-12 hanya Roh Kudus yang mengerti tentang apa yang ada di dalam pikiran Allah
+   c. Maz 78:1-2
+   d. Mat 13:34 --> Yoh 16:25, tulisan ini menggenapi tulisan di Maz 78:1-2 tentang cara mengajar Yesus yaitu menggunakan bahasa perumpaan, dan ketika sudah muncul wujud kegenapannya, maka Allah berbicara secara jelas
+   Bukti bahwa seseorang telah menerima kesaksian Alkitab ini adalah dapat bersaksi tentang apa yang ada di dalam Alkitab itu sendiri ketika dia dipimpin oleh Roh Kudus. Setiap orang dapat menguji dan menemukan kebenarannya.
+
+## 3. Struktur di Dalam Alkitab
+Terdapat sejarah, silsilah, peraturan, nubuat dan kegenapan. Sejarah berfungsi untuk belajar dari masa lalu. Silsilah menjelaskan tentang sejarah umat pilihan Allah zaman perjanjian lalu. Peraturan dibuat untuk menjamin segala sesuatu berjalan dengan baik. Nubuat adalah janji Allah serta kegenapan adalah nubuatan yang terjadi sesuai dengan rencana Allah dan dapat dipercaya
+1. 1 Kor 10:11
+2. 2 Tim 3:16-17
+3. Yoh 14:29
+4. Yoh 19:30, Why 21:6
+   
