@@ -4,7 +4,7 @@ __1 Yoh 5:13__ menjelaskan bahwa Alkitab ditulis untuk mengetahui kehendak Allah
 ## Garis Besar Materi
 1. [Alkitab adalah buku perjanjian](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#-1-aliktab-buku-perjanjian)
 2. [Alkitab adalah tulisan Allah](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#-2-alkitab-adalah-tulisan-allah)
-3. Struktur di dalam Alkitab
+3. [Struktur di dalam Alkitab](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#3-struktur-di-dalam-alkitab)
 4. Alkitab mencatat sejarah dan peperangan
 5. Pentingnya nubuatan dan kegenapan
 6. 7 periode di dalam Alkitab
