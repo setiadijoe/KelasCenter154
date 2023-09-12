@@ -50,15 +50,25 @@ Dalam perjanjian ini, jika taat, akan menerima keselamatan dan jika tidak taat a
 1. Alkitab ditulis melalui para nabi-Nya dan Allah memberikan ilham dalam pimpinan Roh Kudus. 2 Tim 3:16
 2. Terdapat ajaran dari Roh Kudus dan ajaran Manusia
    - Ajaran Manusia
-   a. Why 5:1-3 terdapat kejadian kitab yang termaterai
-   b. Yes 29:9-13 nubuatan tentang kitab yang termaterai dan bangsa yang buta
-   c. Alkitab tak boleh ditafsirkan secara menurut pemikiran sendiri tetapi harus berdasarkan Roh Kudus
-   d. Mrk 7:6-9 Yesus Kristus menyebut orang Ibrani hanya menghapal ajaran manusia
+     
+      a. Why 5:1-3 terdapat kejadian kitab yang termaterai
+   
+      b. Yes 29:9-13 nubuatan tentang kitab yang termaterai dan bangsa yang buta
+
+      c. Alkitab tak boleh ditafsirkan secara menurut pemikiran sendiri tetapi harus berdasarkan Roh Kudus
+
+      d. Mrk 7:6-9 Yesus Kristus menyebut orang Ibrani hanya menghapal ajaran manusia
+
    - Ajaran Roh Kudus
-   a. Gal 1:11-12 Paulus menjelaskan bahwa yang diajarkan adalah ajaran dari Yesus sendiri
-   b. 1 Kor 2:10-12 hanya Roh Kudus yang mengerti tentang apa yang ada di dalam pikiran Allah
-   c. Maz 78:1-2
-   d. Mat 13:34 --> Yoh 16:25, tulisan ini menggenapi tulisan di Maz 78:1-2 tentang cara mengajar Yesus yaitu menggunakan bahasa perumpaan, dan ketika sudah muncul wujud kegenapannya, maka Allah berbicara secara jelas
+     
+      a. Gal 1:11-12 Paulus menjelaskan bahwa yang diajarkan adalah ajaran dari Yesus sendiri
+
+      b. 1 Kor 2:10-12 hanya Roh Kudus yang mengerti tentang apa yang ada di dalam pikiran Allah
+
+      c. Maz 78:1-2
+
+      d. Mat 13:34 --> Yoh 16:25, tulisan ini menggenapi tulisan di Maz 78:1-2 tentang cara mengajar Yesus yaitu menggunakan bahasa perumpaan, dan ketika sudah muncul wujud kegenapannya, maka Allah berbicara secara jelas
+
    Bukti bahwa seseorang telah menerima kesaksian Alkitab ini adalah dapat bersaksi tentang apa yang ada di dalam Alkitab itu sendiri ketika dia dipimpin oleh Roh Kudus. Setiap orang dapat menguji dan menemukan kebenarannya.
 
 ## 3. Struktur di Dalam Alkitab
@@ -67,4 +77,61 @@ Terdapat sejarah, silsilah, peraturan, nubuat dan kegenapan. Sejarah berfungsi u
 2. 2 Tim 3:16-17
 3. Yoh 14:29
 4. Yoh 19:30, Why 21:6
-   
+
+## 4. Alkitab Adalah Sejarah Peperangan
+Dimulai dari adanya malaikat yang jatuh dalam dosa, sejak itulah Allah memiliki musuh yaitu Iblis dan Iblis ingin menjadi allah. Oleh sebab itu Alkitab secara umum adalah peperangan secara roh maupun jasmani. Peperangannya sudah terjadi dimulai dari kejatuhan manusia ke dalam dosa. Perang secara jasmani itu menggunakan peralatan secara jasmani seperti pisau, tombak. Peperangan rohani itu menggunakan Firman Allah dan kedustaan
+
+|Perang| Allah| Iblis|
+|------|:------|:------|
+|Dunia Fisik| Roh dan daging milik Allah| Roh dan dagin milik Iblis|
+|Alasan|Mengambil kembali seluruh ciptaan|Mempertahankan segala miliknya|
+|Senjata| Menggunakan Firman Allah, | kesaksian, nubuatan dan kegenapannya | Kedustaan, aniaya, membunuh|
+
+Ada banyak contoh peperangan antara Allah dan Iblis, yang pertama adalah ketika manusia jatuh ke dalam dosa dan kedua adalah pencobaan Yesus di padang gurun. Ada tiga peperangan besar di Alkitab yaitu __Why 12:7-11__
+> Makna dari darah Yesus(?)
+
+## 5. Pentingnya Nubuat dan Kegenapan
+Nubuatan Allah adalah janji-Nya, dan janjinya selalu ditepati (__Why1:8, Why22:13, Why22:18-19__)
+
+Contoh-contoh nubuatan
+1. Nubuat di zaman Abraham digenapi di zaman Musa (Kej 15:13-14 ==> Kel 12)
+2. Tentang nubuatan tentang Yesus di zaman nabi, digenapi di perjanjian baru (Yes 14:24, Yes 46:10 ==> Luk 24:44 Yoh 19:28-30)
+3. Lahir dari perawan (Yes 7:14 ==> Mark 1:18-23)
+4. Lahir di Betlehem (Mik 5:1 ==> Luk 2:17)
+5. Mulai bekerja (Yes 8:23 -9:1 ==> Mat 4:12-17)
+6. Kedatangan kedua kali Yesus disampaikan pada zaman para rasul dan digenapi di zaman akhir
+
+> Bangsa pilihan Allah di zaman ini adalah orang-orang yang percaya kepada Yesus dan memahami nubuatan serta kegenapannya
+
+## 6. Tujuh Era di Dalam Alkitab
+Luk 12:54-57
+1. Periode Kejadian - Adam, Nuh, Abraham, Ishak, Yakub
+2. Periode Keluaran dan Hukum Taurat
+3. Periode hakim-hakim
+4. Periode raja-raja
+5. Periode nabi-nabi
+6. Periode Injil Kerajaan Sorga dan surat-surta
+7. Periode wahyu dan penciptaan kembali
+
+Kedatangan Yesus yang kedua akan seperti pencuri yang mau datang mencuri bagi orang yang tidak percaya, tetapi bagi yang percaya sudah bersiap-siap karena tahu tanda-tandanya
+
+## 7. Pola Urutan Nubuat dan Kegenapan
+__2 Tes 2:1-3__ berdasarkan kitab ini ada tiga urutan kegenapannya
+1. Pemurtad harus muncul
+2. Pembinasa yang membinasakan pemurtad
+3. Penyelamat
+
+## 8. Tujuan Allah Menuliskan Alkitab
+Alkkitab ditulis karena manusia jatuh ke dalam dosa
+- Kej 2:17, Rom 6:23
+Kehendak Allah adlah manusia bisa diselamatkan dan hidup kekal
+- 1 Tim 2:4, Yoh 6:40
+Tujuan dari Alkitab ini adalah untuk hidup kekal
+- 1 Yoh 5:13
+Memberikan harapan kepada semua orang percaya yaitu hidup kekal
+- Yoh 5:39-40
+
+# Kesimpulan
+> - Alkitab adalah satu-satunya standard absolut
+> - Allah akan menolong kita untuk mengerti tentang Alkitab
+> - Perlu bagi kita untuk berdoa supaya Allah memberikan pengertian dan pemahaman dengan rendah hati
