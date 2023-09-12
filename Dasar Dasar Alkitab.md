@@ -85,7 +85,7 @@ Dimulai dari adanya malaikat yang jatuh dalam dosa, sejak itulah Allah memiliki 
 |------|:------|:------|
 |Dunia Fisik| Roh dan daging milik Allah| Roh dan dagin milik Iblis|
 |Alasan|Mengambil kembali seluruh ciptaan|Mempertahankan segala miliknya|
-|Senjata| Menggunakan Firman Allah, | kesaksian, nubuatan dan kegenapannya | Kedustaan, aniaya, membunuh|
+|Senjata| Menggunakan Firman Allah, kesaksian, nubuatan dan kegenapannya | Kedustaan, aniaya, membunuh|
 
 Ada banyak contoh peperangan antara Allah dan Iblis, yang pertama adalah ketika manusia jatuh ke dalam dosa dan kedua adalah pencobaan Yesus di padang gurun. Ada tiga peperangan besar di Alkitab yaitu __Why 12:7-11__
 > Makna dari darah Yesus(?)
