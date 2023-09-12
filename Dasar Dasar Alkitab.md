@@ -5,11 +5,11 @@ __1 Yoh 5:13__ menjelaskan bahwa Alkitab ditulis untuk mengetahui kehendak Allah
 1. [Alkitab adalah buku perjanjian](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#-1-aliktab-buku-perjanjian)
 2. [Alkitab adalah tulisan Allah](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#-2-alkitab-adalah-tulisan-allah)
 3. [Struktur di dalam Alkitab](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#3-struktur-di-dalam-alkitab)
-4. Alkitab mencatat sejarah dan peperangan
-5. Pentingnya nubuatan dan kegenapan
-6. 7 periode di dalam Alkitab
-7. Pola di dalam nubuatan dan kegenapan
-8. Tujuan Allah menuliskan Alkitab yaitu keselamatan dari maut, upah dosa dan hidup kekal
+4. [Alkitab mencatat sejarah dan peperangan](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#4-alkitab-adalah-sejarah-peperangan)
+5. [Pentingnya nubuatan dan kegenapan](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#5-pentingnya-nubuat-dan-kegenapan)
+6. [7 periode di dalam Alkitab](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#6-tujuh-era-di-dalam-alkitab)
+7. [Pola di dalam nubuatan dan kegenapan](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#7-pola-urutan-nubuat-dan-kegenapan)
+8. [Tujuan Allah menuliskan Alkitab](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md#8-tujuan-allah-menuliskan-alkitab)
 
 ## 1. Alkitab Buku Perjanjian
 Allah membuat perjanjian dengan bangsa pilihan (__Maz 89:4__)
