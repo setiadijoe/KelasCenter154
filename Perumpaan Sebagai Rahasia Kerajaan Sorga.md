@@ -2,10 +2,10 @@
 __Mat 13:10-11__
 
 ## Poin Utama
-1. Mengapa tidak dapat mengerti keseluruhan Alkitab?
-2. Mengapa Yesus berbicara dalam perumpamaan?
-3. Rahasia Kerajaan Sorga ada di 4 Injil dan Wahyu
-4. Kapan dan melalui siapa dapat melihat wujud kegenapan dari perumpamaan
+1. [Mengapa tidak dapat mengerti keseluruhan Alkitab?](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpaan%20Sebagai%20Rahasia%20Kerajaan%20Sorga.md#1-membaca-firman-tapi-tidak-mengerti)
+2. [Mengapa Yesus berbicara dalam perumpamaan?](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpaan%20Sebagai%20Rahasia%20Kerajaan%20Sorga.md#2-mengapa-rahasia-kerajaan-sorga-ditulis-dalam-perumpamaan)
+3. [Rahasia Kerajaan Sorga ada di 4 Injil dan Wahyu](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpaan%20Sebagai%20Rahasia%20Kerajaan%20Sorga.md#3-rahasia-kerajaan-sorga)
+4. [Kapan dan melalui siapa dapat melihat wujud kegenapan dari perumpamaan](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpaan%20Sebagai%20Rahasia%20Kerajaan%20Sorga.md#4-kapan-dan-melalui-siapa-perumpamaan-di-mengerti)
 5. Apa hasilnya dari seorang yang mengerti dan tidak mengerti perumpamaan?
 6. Bagaimana perumpamaan itu dituils?
 
