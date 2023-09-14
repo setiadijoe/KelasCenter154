@@ -17,7 +17,7 @@ __Mat 13:10-11__
 2. Karena belum digenapi maka wujud kegenapannya belum muncul <br>
 Hab 2:2-3, nubuatan selalu disertai dengan sebuah penglihatan untuk dapat dipercaya dan ditunggu. Realitas kegenapan akan muncul ketika nubuatan itu sudah digenapi sehingga dapat dimengerti arti perumpamaan. Nubuatan harus dimengerti dengan cara mengerti perumpamaan, sehingga tidak boleh dimengerti sendiri
 
-## 2 Mengapa Rahasia Kerjaan Sorga Ditulis Dalam Perumpamaan
+## 2 Mengapa Rahasia Kerajaan Sorga Ditulis Dalam Perumpamaan
 Maz 78:1-2 ditulis oleh Asaf bahwa memang sudah dinubuatkan untuk disampaikan dalam bahasa perumpaan. Ayat ini digenapi di Mat 13:34-35 dan kegenapannya oleh Yesus. Yoh 16:25 dituliskan bahwa ada saatnya berbicara dalam bahasa terus terang, tidak dalam kiasan dan saat itu adalah ketika Yesus datang kembali <br><br>
 Alasan kedua adalah untuk menyembunyikan rahasia Kerajaan Sorga (Mat 13: 10-11) supaya musuh tidak dapat mengacaukan rencana Allah yaitu Iblis
 
