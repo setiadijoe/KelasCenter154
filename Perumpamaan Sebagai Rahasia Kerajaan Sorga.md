@@ -6,8 +6,8 @@ __Mat 13:10-11__
 2. [Mengapa Yesus berbicara dalam perumpamaan?](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpaan%20Sebagai%20Rahasia%20Kerajaan%20Sorga.md#2-mengapa-rahasia-kerajaan-sorga-ditulis-dalam-perumpamaan)
 3. [Rahasia Kerajaan Sorga ada di 4 Injil dan Wahyu](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpaan%20Sebagai%20Rahasia%20Kerajaan%20Sorga.md#3-rahasia-kerajaan-sorga)
 4. [Kapan dan melalui siapa dapat melihat wujud kegenapan dari perumpamaan](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpaan%20Sebagai%20Rahasia%20Kerajaan%20Sorga.md#4-kapan-dan-melalui-siapa-perumpamaan-di-mengerti)
-5. Apa hasilnya dari seorang yang mengerti dan tidak mengerti perumpamaan?
-6. Bagaimana perumpamaan itu dituils?
+5. [Apa hasilnya dari seorang yang mengerti dan tidak mengerti perumpamaan?](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpaan%20Sebagai%20Rahasia%20Kerajaan%20Sorga.md#5-hasil-dari-orang-yang-mengerti-dan-tidak-mengerti-perumpamaan)
+6. [Bagaimana perumpamaan itu dituils?](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpaan%20Sebagai%20Rahasia%20Kerajaan%20Sorga.md#6-bagiamana-perumpamaan-ditulis)
 
 ## 1. Membaca Firman Tapi Tidak Mengerti
 (__Why 13:2, Why 9:19, Yoh 1:1__)
