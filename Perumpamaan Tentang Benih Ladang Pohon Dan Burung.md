@@ -1,7 +1,7 @@
 # Perumpamaan Tentang Benih, Ladang, Pohon dan Burung
 
-1. Benih = Firman
-2. Ladang = hati manusia, dunia
+1. [Benih = Firman](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Tentang%20Benih%20Ladang%20Pohon%20Dan%20Burung.md#1-perumpamaan-benih)
+2. [Ladang = hati manusia, dunia](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Tentang%20Benih%20Ladang%20Pohon%20Dan%20Burung.md#2-perumpamaan-ladang)
 3. Pohon = manusia yang lahir dari firman, gembala
 4. Burung = roh
 >apakah semua jenis burung?
