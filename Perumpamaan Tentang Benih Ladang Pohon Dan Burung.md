@@ -2,8 +2,8 @@
 
 1. [Benih = Firman](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Tentang%20Benih%20Ladang%20Pohon%20Dan%20Burung.md#1-perumpamaan-benih)
 2. [Ladang = hati manusia, dunia](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Tentang%20Benih%20Ladang%20Pohon%20Dan%20Burung.md#2-perumpamaan-ladang)
-3. Pohon = manusia yang lahir dari firman, gembala
-4. Burung = roh
+3. [Pohon = manusia yang lahir dari firman, gembala](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Tentang%20Benih%20Ladang%20Pohon%20Dan%20Burung.md#3-perumpamaan-pohon)
+4. [Burung = roh](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Tentang%20Benih%20Ladang%20Pohon%20Dan%20Burung.md#4-perumpamaan-burung)
 
 ## 1. Perumpamaan Benih
 - Mat 13:24-30 tentang perumpamaan tentang benih yang baik dan benih lalang yang ditaburkan di ladang
@@ -35,6 +35,7 @@ Benih secara rohani
    c. Mat 23:33<br>
    d. Why 14:14-16 arti dari penuaian adalah ketika dituai itu akan dimasukkan ke dalam lumbung, tetapi ketika ditinggal di ladang, maka akan dibakar<br>
 5. Why 14:4 - yang dituai adalah korban-korban sulung bagi Allah
+6. Perumpamaan tentang ladang ini adalah cerminan hati manusia dan itu pasti akan mengalami proses itu
 
 > Gandum dan lalang ditaburkan di ladang yang sama artinya ada Firman Allah dan ajaran Iblis yang Tuhan biarkan tumbuh bersama supaya dapat mendapatkan hasilnya yang berasal dari gandum baru nanti setelah dikumpulkan di lumbung, baru dikumpulkan lalangnya dan dibakar
 >
