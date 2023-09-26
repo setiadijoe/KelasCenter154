@@ -3,7 +3,7 @@
 1. Makanan artinya adalah firman
 2. Ragi adalah ajaran
 
-1. Perumpamaan tentang Makanan
+## Perumpamaan tentang Makanan
    __Mat 24:45-47, Mat 24:6-7__<br>
 
 Matius 24 ditulis sebagai nubuatan dan ditulis dalam bahasa perumpamaan karena ada rahasia Kerajaan Allah. Kejadian pada Mat 24: 45-47 disebutkan akan ada seorang hamba yang memberikan makanan pada waktunya pada orang-orang tuannya. Tuan di sini adalah Yesus Kristus, waktu yang tepat adalah kedatangan Yesus yang kedua kalinya. Hamba yang setia dan bijaksana adalah gembala yang benar, sedangkan orang-orang tuannya adalah jemaat.
