@@ -7,3 +7,4 @@ Catatan terkait pengajaran kelas center
 4. [Dasar-Dasar Alkitab](https://github.com/setiadijoe/KelasCenter154/blob/main/Dasar%20Dasar%20Alkitab.md)
 5. [Perumpamaan Sebagai Rahasia Kerajaan Sorga](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Sebagai%20Rahasia%20Kerajaan%20Sorga.md)
 6. [Perumpamaan Tentang Benih, Ladang, Pohon,dan Burung](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Tentang%20Benih%20Ladang%20Pohon%20Dan%20Burung.md)
+7. [Perumpamaan Tentang Makanan dan Ragi](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Makanan%20dan%20Ragi.md)
