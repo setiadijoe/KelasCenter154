@@ -1,6 +1,6 @@
 # Perumpamaan Makanan dan Ragi
 
-1. Makanan artinya adalah firman
+1. [Makanan artinya adalah firman](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Makanan%20dan%20Ragi.md)
 2. Ragi adalah ajaran
 
 ## Perumpamaan tentang Makanan
