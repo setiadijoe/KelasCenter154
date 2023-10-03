@@ -8,3 +8,4 @@ Catatan terkait pengajaran kelas center
 5. [Perumpamaan Sebagai Rahasia Kerajaan Sorga](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Sebagai%20Rahasia%20Kerajaan%20Sorga.md)
 6. [Perumpamaan Tentang Benih, Ladang, Pohon,dan Burung](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Tentang%20Benih%20Ladang%20Pohon%20Dan%20Burung.md)
 7. [Perumpamaan Tentang Makanan dan Ragi](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Makanan%20dan%20Ragi.md)
+8. [Perumpamaan Cawan, Keranjang, Timbangan, Tongkat](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Cawan%20Dan%20Keranjang%2C%20Timbangan%20dan%20Tongkat.md)
