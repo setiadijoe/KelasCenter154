@@ -1,7 +1,7 @@
 # Cawan Dan Keranjang, Timbangan dan Tongkat
-1. Cawan: hati manusia
-2. Keranjang: gereja/organisasi
-3. Timbangan: firman yang menimbang hati dan perbuatan, Tongkat: firman Allah atau pembawa firman
+1. [Cawan: hati manusia](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Cawan%20Dan%20Keranjang%2C%20Timbangan%20dan%20Tongkat.md#1-cawan)
+2. [Keranjang: gereja/organisasi](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Cawan%20Dan%20Keranjang%2C%20Timbangan%20dan%20Tongkat.md#2-keranjang)
+3. [Timbangan: firman yang menimbang hati dan perbuatan, Tongkat: firman Allah atau pembawa firman](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Cawan%20Dan%20Keranjang%2C%20Timbangan%20dan%20Tongkat.md#3-timbangan-dan-tongkat)
 4. Tongkat besi: otoritas kepemimpinan
 
 ## 1. Cawan
