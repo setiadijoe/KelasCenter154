@@ -3,7 +3,7 @@
 1. Api
 2. Pedupaan
 3. Kemenyan
-4. Periuk
+4. [Periuk](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Api%2C%20Pedupaan%2C%20Periuk%2C%20Kemenyan.md#4-periuk)
 
 2 Pet 3: 9 -> Tuhan berharap manusia menjadi selamat dan tidak ada yang binasa.
 
