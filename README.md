@@ -12,6 +12,6 @@ Catatan terkait pengajaran kelas center
 7. [Perumpamaan Tentang Makanan dan Ragi](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Makanan%20dan%20Ragi.md)
 8. [Perumpamaan Cawan, Keranjang, Timbangan, Tongkat](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Cawan%20Dan%20Keranjang%2C%20Timbangan%20dan%20Tongkat.md)
 9. [Perumpamaan Api, Pedupaan, Kemenyan, Periuk](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Api%2C%20Pedupaan%2C%20Periuk%2C%20Kemenyan.md)
-10. Perumpamaan Tentang Gelap dan Terang
+10. Perumpamaan Tentang Gelap dan Terang, Kandil/Kaki Dian, Buta/Tuli, Pakian dan Telanjang
 
 ## Catatan Kelas Menengah
