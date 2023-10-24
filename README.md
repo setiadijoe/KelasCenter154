@@ -14,5 +14,6 @@ Catatan terkait pengajaran kelas center
 9. [Perumpamaan Api, Pedupaan, Kemenyan, Periuk](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Api%2C%20Pedupaan%2C%20Periuk%2C%20Kemenyan.md)
 10. Perumpamaan Tentang Gelap dan Terang, Kandil/Kaki Dian, Buta/Tuli, Pakaian dan Telanjang
 11. [Perumpamaan Harta dan Orang Kaya](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Harta%20dan%20Orang%20Kaya.md)
+12. [Perumpamaan Air, Sumber Mata Air, Sungai](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Air%2C%20Sumber%20Mata%20Air%2C%20Sungai.md)
 
 ## Catatan Kelas Menengah
