@@ -43,7 +43,7 @@ Kedatangan Yesus Kedua
 - Maz 12:7, janji Tuhan adalah nubuatan-Nya juga
 
 Contoh lain dari harta
-- Mat 25:14-18, talenta adalah *bag of gold* dana apakah arti dari 5, 2 dan 1 talenta?
+- Mat 25:14-18, talenta adalah *bag of gold* dan apakah arti dari 5, 2 dan 1 talenta?
 - Yoh 5:17-19, pekerjaan dari mengusahakan 5, 2 dan 1 talenta adalah memberitakan firman Allah kepada banyak orang
 - Yeg 3:16-21, perintah Tuhan untuk para murid adalah bersaksi tentang Tuhan ke banyak orang
 - Pekerjaan yang dilakukan oleh Allah adalah memberitakan dan memberi saksi tentang Kerajaan Allah kepada banyak orang
