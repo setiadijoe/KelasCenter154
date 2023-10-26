@@ -8,7 +8,7 @@
 - Membersihkan kotoran
 - Ada yang bisa diminum dan ada yang tidak bisa diminum. Air yang bisa diminum dapat menjadi sumber kehidupan
 - Mata air adalah tempat air berasal
-- Sumber mata air yang baik memiliki ciri-cir bersih, jernih dan segar
+- Sumber mata air yang baik memiliki ciri-ciri bersih, jernih dan segar
 
 ## Pengertian secara rohani
 - Air adalah firman
@@ -41,9 +41,34 @@
 - Why 3:12
 - Why 3:21
 
+2 Petr 2:17 nabi-nabi palsu diibaratkan sebagai mata air yang kering, yaitu mereka yang tidak memiliki firman yang tersingkap
+
+## Sungai
+Sungai berasal dari mata air yang mengalir dan berakhir di lautan
+
+- Yeh 47:1-12, Yesus adalah Bait Allah dan mata air dan sungainya adalah para murid yang pertama kali Yesus miliki. Sungai adalah hati seorang murid yang memiliki firman
+- Firman yang tersingkap adalah firman yang memberikan kehidupan seperti air
+- Why 22:1-2, terdapat pohon yang berbuah dua belas kali dalam dua belas bulan, setiap bulan ada buahnya dan daun-daunya bisa digunakan untuk obat bagi bangsa-bangsa.
+- Pada masa kedatangan yang kedua ada penyelamatan pada bangsa-bangsa yang sakit
+- Yoh 17:8, 18, para murid adalah sumber mata air yang berikutnya menjadi saksi
+- Laut adalah dunia yang dimaksud dalam nubuatan ini
+- Kel 15:26, penyakit manusia adalah dosa
+- Yoh 4:14, setiap orang yang menerima firman Tuhan akan kembali diutus kepada bangsa-bangsa
+
+Sungai yang berasal dari Iblis
+- Why 8:10, penghakiman atas pemurtad
+- Why 16:4, penghakiman atas pembinasa
+- Pada nubuatan ini adanya cawan yang tertumpah ke sungai dan mata air maka artinya itu adalah miliknya Iblis
+
 # Kesimpulan
 >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
-> - Air adalah firman kehidupan tetapi ada air kotor dan air bersih
+> - Air adalah firman kehidupan tetapi ada air kotor dan air bersi
+> - Pada kedatangan pertama yang dimaksud air kehidupan adalah kesaksian tentang perwujudan dari nubuat-nubuatan dari perjanjian lama
+> - Pada kedatangan yang kedua yang dimaksud adalah kesaksian tentang perwujudan dari nubuat-nubuatan dari perjanjian baru
 > - Firman tersingkap adalah air kehidupan
-> - Mata air adalah seorang manusia yang diutus oleh Tuhan untuk memberikan kesaksian setiap nubuatan di dalam perjanjian baru
+> - Mata air adalah seorang manusia yang diutus oleh Tuhan untuk memberikan kesaksian setiap nubuatan
+> - Pada kedatangan pertama sosoknya adalah Yesus
+> - Pada kedatangan kedua sosoknya saat ini disebut sebagai Yohanes Baru
+> - Sungai adalah kelompok murid, penginjil
+> - Pada kedatangan pertama adalah murid, penginjil, sama seperti pada kedatangan kedua
 >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
