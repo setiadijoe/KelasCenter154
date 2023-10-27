@@ -15,5 +15,6 @@ Catatan terkait pengajaran kelas center
 10. Perumpamaan Tentang Gelap dan Terang, Kandil/Kaki Dian, Buta/Tuli, Pakaian dan Telanjang
 11. [Perumpamaan Harta dan Orang Kaya](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Harta%20dan%20Orang%20Kaya.md)
 12. [Perumpamaan Air, Sumber Mata Air, Sungai](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Air%2C%20Sumber%20Mata%20Air%2C%20Sungai.md)
+13. [Perumpamaan Laut Nelayan Pukat Ikan dan Kapal](https://github.com/setiadijoe/KelasCenter154/blob/main/Perumpamaan%20Laut%2C%20Nelayan%2C%20Pukat%2C%20Ikan%20dan%20Kapal.md)
 
 ## Catatan Kelas Menengah
